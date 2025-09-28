@@ -11,7 +11,7 @@ Don't hesitate on contacting me!
 
 ## Experience and Projects 🛠️
 
-#### ***\~To view more of my professional projects and experience, please go to my webpage: [my portfolio](https://sites.google.com/view/adrian-perez-ortega/inicio)\~***
+#### ***\~To view more of my professional projects and experience, please go to my webpage: [my portfolio](https://adrianperezortega.netlify.app/)\~***
 
 ---
 
